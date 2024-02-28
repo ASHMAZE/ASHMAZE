@@ -1,4 +1,4 @@
-uhhh some cutesy things: 
+uhhh some cutesy things i couldnt fit on my carrd
 
 ![306ab85b](https://github.com/EIDOLISM/EIDOLISM/assets/134099843/625953d7-5b94-495f-ad71-afa11a80d0b5)
 ![94d8a931](https://github.com/EIDOLISM/EIDOLISM/assets/134099843/954bbe2e-a6f9-4f17-a6ac-834453917296)
