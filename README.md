@@ -13,7 +13,7 @@ $$⠀⠀ whisper⠀⠀ 2⠀⠀ int⠀⠀ if⠀⠀ i'm⠀⠀ away⠀⠀ or⠀⠀ 
 
 $$⠀⠀ i⠀⠀ don't⠀⠀ usually⠀⠀ int⠀⠀ first⠀⠀ !⠀⠀ $$
 
-$$⠀⠀ rentry⠀⠀ w⠀⠀ my⠀⠀ blikies⠀⠀ :⠀⠀ .co⠀⠀ /⠀⠀ eidolism⠀⠀ $$
+$$⠀⠀ rentry⠀⠀ w⠀⠀ my⠀⠀ blinkies⠀⠀ :⠀⠀ .co⠀⠀ /⠀⠀ eidolism⠀⠀ $$
 
 ⠀⠀ 
 
