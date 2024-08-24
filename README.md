@@ -7,7 +7,7 @@ $$⠀⠀⠀⠀KILL⠀⠀THE⠀⠀LIGHTS⠀⠀.ᐟ⠀⠀⠀$$
 
 $$eido⠀⠀ ──⠀⠀ she⠀⠀ /⠀⠀ her$$
 <p align="center">
-<img src="https://www7.lunapic.com/do-not-link-here-use-hosting-instead/172445346459530207?72494936013"/>
+<img src="https://www7.lunapic.com/do-not-link-here-use-hosting-instead/172445346459530207?50608545858"/>
 </p>
 
 $$⠀⠀ whisper⠀⠀ 2⠀⠀ int⠀⠀ if⠀⠀ i'm⠀⠀ away⠀⠀ or⠀⠀ busy⠀⠀ $$
