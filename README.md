@@ -1,4 +1,5 @@
-$$˗ˏˋ ⁺ ‧ ₊ ˚ ཐི ⋆ ☥ ⋆ ཋྀ ˚ ₊ ‧ ⁺ ˎˊ˗$$
+<p align="center">
+˗ˏˋ ⁺ ‧ ₊ ˚ ཐི ⋆ ☥ ⋆ ཋྀ ˚ ₊ ‧ ⁺ ˎˊ˗
 
 <p align="center">
 <img src="https://i.imgur.com/PLCRxOj.png"/>
@@ -23,4 +24,5 @@ $$˗ˏˋ ⁺ ‧ ₊ ˚ ཐི ⋆ ☥ ⋆ ཋྀ ˚ ₊ ‧ ⁺ ˎˊ˗$$
 <p align="center">
 <img src="https://i.imgur.com/QbC5E42.png"/>
 
-$$˗ˏˋ ⁺ ‧ ₊ ˚ ཐི ⋆ ☥ ⋆ ཋྀ ˚ ₊ ‧ ⁺ ˎˊ˗$$
+<p align="center">
+˗ˏˋ ⁺ ‧ ₊ ˚ ཐི ⋆ ☥ ⋆ ཋྀ ˚ ₊ ‧ ⁺ ˎˊ˗
