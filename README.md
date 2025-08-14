@@ -27,7 +27,7 @@
 <img src="https://i.imgur.com/QbC5E42.png"/>
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns page.](https://en.pronouns.page/@AVILIS) - [rentry.](https://rentry.co/listentoavilisguys)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns page.](https://en.pronouns.page/@ASHMAZE) - [rentry.](https://rentry.co/listentoavilisguys)
 
 
 
