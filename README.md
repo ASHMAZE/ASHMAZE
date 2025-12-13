@@ -27,7 +27,7 @@
 <img src="https://i.imgur.com/QbC5E42.png"/>
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.](https://pronouns.cc/@ASHMAZE.) - [rentry.](https://rentry.co/2baddies2baddiesoneporsche)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.](https://pronouns.cc/@ASHMAZE.) - [strawpage.](https://ashmaze.straw.page)
 
 
 
